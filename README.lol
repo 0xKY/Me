@@ -1,5 +1,0 @@
-HAI
-I HAZ A NAME ITZ KALOYAN
-BTW I love this language so much!!
-VISIBLE NAME
-KTHXBAI
